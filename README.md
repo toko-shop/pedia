@@ -1,0 +1,2 @@
+# pedia
+sukses selalu
